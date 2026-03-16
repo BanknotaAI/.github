@@ -106,7 +106,7 @@ This is for the kid with the crusty magazine and the carbon paper. This is for e
 
 They are now.
 
-*— Guillermo, BanknotaAI*
+*— El Gorro, BanknotaAI*
 
 ---
 
